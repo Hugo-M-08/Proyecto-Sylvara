@@ -43,3 +43,6 @@
 
 ### ✍️ Autor
 **Ingeniero en TICs** - Hugo-M-08 🫂
+
+
+**PD:** Si necesita el archivo de al app completo favor de contactar :))
